@@ -1,3 +1,5 @@
+<img width="100" src="https://komarev.com/ghpvc/?username=maskedandhooded&label=tapes&color=000000">
+
 ## " Together , forvever , and ever . "
 
 ![](https://file.garden/alGl3cPRpgjgSD40/ezgif-8c5fe7fb2d68b89f.gif)
